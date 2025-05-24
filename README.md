@@ -34,7 +34,7 @@
 
 ## 📫 Let’s Connect!
 - 📧 [abhyudaymishrajb007@gmail.com](mailto:abhyudaymishrajb007@gmail.com)
-- 🔗 [LinkedIn](https://linkedin.com/in/abhyuday-mishra)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/abhyuday-mishra-b261a4326)
 
 ---
 
